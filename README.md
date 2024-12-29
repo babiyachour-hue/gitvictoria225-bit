@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @gitvictoria225-bit
 - 👀 I’m interested in serious relationship 
 - 🌱 I’m currently working as nonprofit organization 
-- 💞️ I’m looking to collaborate on good company 
-- 📫 How to reach me on Facebook 
+- 💞️ I’m looking to collaborate on Good man
+- 📫 How to reach me on zangi..1089820983
 - 😄 Pronouns: her
 - ⚡ Fun fact: ...
 
