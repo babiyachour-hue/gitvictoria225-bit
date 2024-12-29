@@ -2,7 +2,7 @@
 - 👀 I’m interested in serious relationship 
 - 🌱 I’m currently working as nonprofit organization 
 - 💞️ I’m looking to collaborate on Good man
-- 📫 How to reach me on zangi..1089820983
+- 📫 How to reach me on https://www.facebook.com/profile.php?id=61569308829386&mibextid=ZbWKwL
 - 😄 Pronouns: her
 - ⚡ Fun fact: ...
 
