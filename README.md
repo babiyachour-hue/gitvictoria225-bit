@@ -2,7 +2,9 @@
 - 👀 I’m interested in serious relationship 
 - 🌱 I’m currently working as nonprofit organization 
 - 💞️ I’m looking to collaborate on Good man
-- 📫 How to reach me on https://www.facebook.com/profile.php?id=61569308829386&mibextid=ZbWKwL
+- 📫 How to reach me 
+- 💌 victoriavillarroel857@gmail.com
+- Twitter victoriavillarroel03 💕❣️🌹
 - 😄 Pronouns: her
 - ⚡ Fun fact: ...
 
