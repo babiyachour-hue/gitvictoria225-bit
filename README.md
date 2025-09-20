@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @gitvictoria225-bit
-- 👀 I’m interested in serious relationship 
+- 👀 I’m interested learn in serious relationship 
 - 🌱 I’m currently working as nonprofit organization 
 - 💞️ I’m looking to collaborate on Good man
-- 📫 How to reach me 
+- 📫 How to teach me 
 - 💌 victoriavillarroel857@gmail.com
 - Twitter victoriavillarroel03 💕❣️🌹
 - 😄 Pronouns: her
